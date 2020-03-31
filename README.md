@@ -48,3 +48,13 @@
 ##### 45.) Another Space Song by Failure
 ##### 46.) Take a Picture by Filter
 ##### 47.) Still Alive by LeKid, Mt. Eden
+#### Recently added:
+##### Change (In the House of Flies) - In The House Of Flies LP Version by Deftones
+##### So High by Funky Fella
+##### In the Hall of the Mountain King by Trent Reznor and Atticus Ross
+##### Coffee Cup by Boztown
+##### Glory Box by Portishead
+##### Trip to Heaven by Boubou
+##### The Celebration Song by Brock Berrigan
+##### Ms. Ho by Onra
+##### 4/17/1975 by Rob Viktum
